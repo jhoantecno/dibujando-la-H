@@ -1,2 +1,2 @@
-# dibujando-la-H
-tarea del colegio skolmi
+# tecnologia 8°b  =)
+tareas del colegio skolmi
